@@ -1,1 +1,3 @@
-# all-about-love
+# *All About Love by bell hooks – Rediscovering Love as a Radical, Healing Force*
+## *bell hooks’ All About Love: New Visions is a groundbreaking exploration of love that challenges widely held beliefs and misconceptions about what love is and how it functions in our lives. Published in 1999, this influential work combines personal narrative, cultural critique, and philosophical insights to redefine love as a conscious, intentional, and transformative practice. hooks calls readers to embrace love as an actionable verb rather than a transient feeling, arguing that love is essential not only for personal fulfillment but also for social justice and healing.* [More details…](https://spiritualkhazaana.com/all-about-love-as-a-radical-healing-force/)
+## #bellhooks #AllAboutLove #LoveIsAChoice #SelfLove #SocialJustice #BookReview #MindfulLiving
